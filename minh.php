@@ -1,1 +1,0 @@
-Tôi là Minh, năm nay 26 tuổi.
